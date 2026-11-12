@@ -1,9 +1,9 @@
-![BUNNIES!](9f95df42595f412749ff43f0154ce026.jpg)
+![SHU!](72bbe5f50c7d46f1fc318502929bf38e.jpg)
 I would very much appreciate it if you call me by the name Oliver.
 
 ◆
 
-![IDK!](595a48299f54a50c16797b94ba5e84c0.jpg)
+![GIF!](59b44edb23c98d419d18321bdc1bf619.gif)
 
    please do not tell me Sexual/Flirty jokes if we have just met<3.
 
@@ -14,7 +14,7 @@ I would very much appreciate it if you call me by the name Oliver.
 
  I go by the pronouns He/Him and those only⋆.˚ ᡣ𐭩 
 
-![WATER!](bbc17ecad554f47f825904947f45b1e7.gif)
+![GIF!](b296d894587aae314ab8c7177864406f.gif)
 𓈒⟡₊⋆∘I love my dear wife !!
           ‌               
 .
