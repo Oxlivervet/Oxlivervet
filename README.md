@@ -5,7 +5,7 @@ I would very much appreciate it if you call me by the name Oliver.
 
 ![GIF!](59b44edb23c98d419d18321bdc1bf619.gif)
 
-   please do not tell me Sexual/Flirty jokes if we have just met<3.
+   please do not tell me overly personal things IMMEDIATELY if we have just met,trust is a good thing but not for people you do not know properly no matter how much of a good person they are<3.
 
    
    .
