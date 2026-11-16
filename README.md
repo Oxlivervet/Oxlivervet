@@ -1,4 +1,4 @@
-![MITYA!](6c20b381fe0657f85f1bdcabc294d240.jpg)
+![MITYA!](dee95eac08dcde5b373c1d5382325c12.jpg)
 I would very much appreciate it if you call me by the name Oliver.
 
 ◆
