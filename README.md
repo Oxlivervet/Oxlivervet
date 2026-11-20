@@ -1,11 +1,11 @@
-![MITYA!](dee95eac08dcde5b373c1d5382325c12.jpg)
+![SUA!](c76bfa893261d95a2c7012bf093ce3ed.jpg)
 I would very much appreciate it if you call me by the name Oliver.
 
 ◆
 
 ![GIF!](59b44edb23c98d419d18321bdc1bf619.gif)
 
-   please do not tell me overly personal things IMMEDIATELY if we have just met,trust is a good thing but not for people you do not know properly no matter how much of a good person they are<3.
+   please inform me if ive cuddled with anyone problematic ! ! !
 
    
    .
